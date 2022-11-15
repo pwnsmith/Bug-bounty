@@ -1,0 +1,1 @@
+# First Tip : Be Curious and Pay attention to detail 
